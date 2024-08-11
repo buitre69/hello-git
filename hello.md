@@ -1,0 +1,2 @@
+### "He vomitado nueve veces ayer, más diarrea" subía una imagen en sus historias de Instagram la nadadora con una cara donde se podía observar que no estaba en sus mejores días aunque tuviera el pulgar levantado. 
+buitre69
